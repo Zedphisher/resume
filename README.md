@@ -1,2 +1,1 @@
-# resume
-ITS MY FIRST WEB BUT COPED
+
